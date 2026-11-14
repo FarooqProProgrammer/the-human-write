@@ -1,0 +1,80 @@
+## Assumptions
+
+- Tone: playful (jingles need bounce; not the warm default)
+- Format: short radio/social ad jingles (~8–15 seconds spoken or sung)
+- Titles/brands: invented placeholders—swap for a real brand before airing
+- Audience: general English-speaking listeners
+
+---
+
+# Ten Jingles
+
+## 1. Copper Kettle Coffee
+
+Wake up slow, or wake up right—  
+Copper Kettle, dark and bright.  
+One small cup, then clear your head.  
+Copper Kettle. Go get fed.
+
+## 2. Pocket Map Shoes
+
+Left foot, right foot, city street—  
+Pocket Map Shoes know your beat.  
+Walk all day, still soft, still true.  
+Where you’re going, they walk too.
+
+## 3. Rainglass Windows
+
+Rain on glass, the room stays warm.  
+Rainglass Windows ride the storm.  
+See the weather. Keep the quiet.  
+Rainglass. Clear. You try it.
+
+## 4. Monday Mint Gum
+
+Monday’s loud. Your mouth can rest.  
+Monday Mint—cool, clean, no mess.  
+Pop a piece before the grind.  
+Monday Mint. Reset your mind.
+
+## 5. Nest & Needle Tailors
+
+Rip in the sleeve? Don’t hide it.  
+Nest & Needle—bring it, we’ll guide it.  
+Stitch by stitch, it fits like new.  
+Nest & Needle. Made for you.
+
+## 6. Harbor Light Lanterns
+
+Porch goes dark, the night gets long.  
+Harbor Light keeps the soft song.  
+Flick once on. The path shows through.  
+Harbor Light. Waiting for you.
+
+## 7. Blue Bowl Broth
+
+Spoon goes in, the day slows down.  
+Blue Bowl Broth, gold and brown.  
+Steam first. Then the quiet hit.  
+Blue Bowl. Sit a bit.
+
+## 8. Sparrow Bike Bells
+
+Cross the lane, be kind, be clear—  
+Sparrow Bell so they can hear.  
+One bright ring, then roll along.  
+Sparrow. Safe. And strong.
+
+## 9. Ink & Apron Cookbooks
+
+Flour on hands, sauce on the page—  
+Ink & Apron won’t act sage.  
+Real steps. Real mess. Real food you make.  
+Ink & Apron. Learn by the bake.
+
+## 10. Quiet Hour Headphones
+
+City noise can wait outside.  
+Quiet Hour—soft, closed tight.  
+Press play once. The world thins out.  
+Quiet Hour. That’s what we’re about.
